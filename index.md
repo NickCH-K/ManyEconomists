@@ -18,6 +18,8 @@ Full participants in this project will receive $2,000 and coauthorship on the pa
 
 Full participation entails completing every stage of the project, which includes the original research task, several revisions to your work, and possibly some peer review of others' work. Your first replication task should take you about as long as you’d expect to spend on creating the results section for a short Letters-style publication. After that, the project is expected to take several hours of your time every few months, concluding in early 2024.
 
+**PLEASE VISIT THE [SIGN-UP PAGE](https://qfreeaccountssjc1.az1.qualtrics.com/jfe/form/SV_8dp05uBYk2CMbKS) TO SIGN UP**
+
 ## Support
 
 This project is generously supported by the [Alfred P. Sloan Foundation](https://sloan.org/).
